@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-AAAM840306MGRLDY01
+AAAM840306MGRLDY01
